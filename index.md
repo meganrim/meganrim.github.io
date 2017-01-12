@@ -3,3 +3,5 @@
 I'm super into sleeping.
 
 # Nap and snack time should be mandatory for graduate students.
+
+Blog Post Week 2
